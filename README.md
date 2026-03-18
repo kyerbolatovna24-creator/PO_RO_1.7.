@@ -1,1 +1,0 @@
-# Yerbolatkyzy_lucidchard
